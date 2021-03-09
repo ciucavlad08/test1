@@ -1,2 +1,0 @@
-salllas
-s
